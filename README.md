@@ -1,5 +1,5 @@
 # 😃 About Me:
-🧑🏻‍💻 I am currently study on BTech-CSE 4th Year.<br>🤝 I am self learner and fully passionate in 💻 CODING.<br>✨ I am deep interested in WEB-DEVELOPMENT.<br>🫂 I am interested to meet people and their Interested GYAN talking things.<br>🔥 I am encourage to people to towards their goals until they reach their target..<br>
+🧑🏻‍💻 I am Pursuing BTech-CSE.<br>🤝 I am self learner and fully passionate in 💻 CODING.<br>✨ I am deep interested in WEB-DEVELOPMENT.<br>🫂 I am interested to meet people and their Interested GYAN talking things.<br>🔥 I am encourage to people to towards their goals until they reach their target..<br>
 
 
 ## 🌐 Socials:
