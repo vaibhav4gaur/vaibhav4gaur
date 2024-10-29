@@ -1,5 +1,5 @@
 # 😃 About Me:
-🧑🏻‍💻 I am Pursuing BTech-CSE.<br>🤝 I am self learner and fully passionate in 💻 CODING.<br>✨ I am deep interested in WEB-DEVELOPMENT.<br>🫂 I am interested to meet people and their Interested GYAN Talking Things.
+🧑🏻‍💻 I am Pursuing BTech-CSE.<br>🤝 I am self learner and fully passionate in 💻 CODING.<br>✨ I am deep interested in WEB-DEVELOPMENT.<br>🫂 I am interested to be as a Social and Podcast Interested Talk.
 
 
 ## 🌐 Socials:
