@@ -1,3 +1,7 @@
+
+
+<picture> <img align="right" src="https://github.com/7oSkaaa/7oSkaaa/blob/main/Images/Right_Side.gif?raw=true" width = 250px></picture>
+
 # 😃 About Me:
 🧑🏻‍💻 I am Pursuing BTech-CSE.<br>🤝 I am self learner and fully passionate in 💻 CODING.<br>✨ I am inspire as a Machine Learning Engineer .<br>🫂 I am interested to be as a Social and Podcast Talk.
 
